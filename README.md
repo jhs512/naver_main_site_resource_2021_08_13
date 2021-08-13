@@ -1,0 +1,1 @@
+# naver_main_site_resource_2021_08_13
